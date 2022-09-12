@@ -1,2 +1,2 @@
 # proyek2
-alka ganteng
+pusing lur
